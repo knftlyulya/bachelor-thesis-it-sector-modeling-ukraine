@@ -1,0 +1,1 @@
+# bachelor-thesis-it-sector-modeling-ukraine
